@@ -9,7 +9,7 @@ Ingredientes bolo:
   
 Ingredientes cobertura:
   200 ml de leite
-  3 colheres (sopa) de achocolatado em pó
+  3 colheres (sopa) de chocolate em pó
   3 colheres (sopa) de açúcar
   1 colher (sopa) de margarina
   
