@@ -1,4 +1,4 @@
-Ingredientes bolo:
+Ingredientes bolo de laranja:
   2 ovos
   1 xícara (chá) de açúcar
   2 colheres (sopa) de margarina
@@ -7,9 +7,9 @@ Ingredientes bolo:
   1 envelope de preparado para suco de laranja
   1 colher (sopa) de fermento químico
   
-Ingredientes cobertura:
+Ingredientes cobertura chocolate:
   200 ml de leite
-  3 colheres (sopa) de chocolate em pó
+  3 colheres (sopa) de achocolatado em pó
   3 colheres (sopa) de açúcar
   1 colher (sopa) de margarina
   
